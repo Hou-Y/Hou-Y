@@ -1,4 +1,4 @@
-- 👋 Hi, I am Yiming Hou
+- 👋 Hi
 - 👀 I’m interested in a little bit of everything all of the time
 - 🌱 Work in progress
 
